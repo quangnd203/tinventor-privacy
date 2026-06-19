@@ -82,6 +82,7 @@ Nếu bạn có câu hỏi về chính sách quyền riêng tư này, vui lòng 
 - **Website:** https://tinventor.vn
 
 
+
 # Privacy Policy — Tinventor App (English)
 
 **Last updated:** June 19, 2026
